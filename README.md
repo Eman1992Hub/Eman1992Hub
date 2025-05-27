@@ -4,13 +4,13 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Data Analyst, Mobile Apps Developer
 -----------------------------------
 
-I am a Results-driven Data Analyst, Mobile Apps developer, and Geologist with over 8 years of combined experience in data analytics, Apps development and mining operations.
+I am a Results-driven Data Analyst Associate, Mobile Apps developer, and Geologist with over 8 years of combined experience in data analytics, Apps development and mining operations.
 
 * 🌍  I'm based in Monrovia, Liberia
 * ✉️  You can contact me at [emmanuelzeahn45@gmail.com](mailto:emmanuelzeahn45@gmail.com)
-* 🧠  I'm learning Data Analytics: Qualitative & Quantitative Insights Externship
+* 🧠  I'm currently learning Data Analytics: Qualitative & Quantitative Insights Externship with Extern
 * 🤝  I'm open to collaborating on Projects
-* ⚡  I am that man that love music.
+* ⚡  I am the man who loves music.
 
 ### Skills
 
