@@ -10,7 +10,7 @@ I am a Results-driven Data Analyst Associate, Mobile Apps developer, and Geologi
 * ✉️  You can contact me at [emmanuelzeahn45@gmail.com](mailto:emmanuelzeahn45@gmail.com)
 * 🧠  I'm currently learning Data Analytics: Qualitative & Quantitative Insights Externship with Extern
 * 🤝  I'm open to collaborating on Projects
-* ⚡  I am the man who loves music.
+* ⚡  I am the man who loves Data/music.
 
 ### Skills
 
